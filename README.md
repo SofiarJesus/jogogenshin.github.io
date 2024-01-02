@@ -1,0 +1,1 @@
+# jogogenshin.github.io
